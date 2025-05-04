@@ -1,3 +1,6 @@
+![Picsart_25-04-26_22-47-32-835](https://github.com/user-attachments/assets/b4504c9c-9a51-49a7-9619-6b697f93fd05)
+![Picsart_25-04-30_16-22-43-237](https://github.com/user-attachments/assets/f72155cf-02a3-414f-aacc-2d4e93e3d280)
+![Picsart_25-05-01_21-04-36-782](https://github.com/user-attachments/assets/846e89a6-9eaf-4a33-ba01-dc76a0d4d0e6)
 - 👋 Hi, I’m @Verified774
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
